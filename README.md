@@ -7,3 +7,5 @@ I love black and light blue colors
 I build custom keyboards
 
 Nice to meet you Ethan!
+
+You sound lit no cap
