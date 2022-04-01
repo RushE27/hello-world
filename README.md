@@ -5,3 +5,5 @@ I play video games like valorant and csgo
 I am a freshman 
 I love black and light blue colors
 I build custom keyboards
+
+Nice to meet you Ethan!
